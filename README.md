@@ -1,1 +1,1 @@
-## secret-lana
+## Secret Lana
